@@ -1,4 +1,4 @@
-
+Download automatic dandy's world Script for dandy's world, the best script available, featuring invisibility and teleport. This powerful tool ensures you have the upper hand in
 
 
 
